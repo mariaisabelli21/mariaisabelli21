@@ -7,8 +7,14 @@ estou estudando na [Alura](https://www.alura.com.br/)
 
 -estudante do colégio Adolpho e do Cedep Cursos
 
+-sou da igreja católica
+
+-meu filme favorito é para todos os garotos que ja amei 
+
+![](https://media1.tenor.com/m/cKeD5YnLiW4AAAAC/to-all-the-boys-ps-i-love-you.gif)
+
 -sou de humanas
 
 -pretendo fazer faculdade de direito
 
--gosto de ler e assistir filmes
+![](https://media.tenor.com/mFtTEcsmU40AAAAj/spongebob-heart.gif)
